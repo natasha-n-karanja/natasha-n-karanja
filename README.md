@@ -22,4 +22,7 @@ I'm a full-stack engineering student who’s passionate about building both the 
 ---
 [![](https://visitcount.itsvg.in/api?id=natasha-n-karanja&icon=7&color=10)](https://visitcount.itsvg.in)
 
+![chill](https://github.com/user-attachments/assets/07089ff6-b9f4-4663-9e62-997e0ed504d1)
+
+---
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
